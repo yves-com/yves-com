@@ -12,7 +12,7 @@ I enjoy eating food but trying to not eat that much currently as am on the extre
 Food I like:
 - Pizza
 - Nachos
-- Loaded chessy fries
+- Loaded cheesy fries
 - Not vegetables
 
 [Skyscanner link](https://www.skyscanner.com)
